@@ -2,7 +2,7 @@
 - 👀 I’m interested in Backend Developing 
 - 🌱 I’m currently learning Python
 - 💞️ I’m looking to collaborate on ###
-- 📫 How to reach me email - mirgamer09@gmail.com or discord - camman_119_70901
+- 📫 How to reach me email - mirgamer09@gmail.com or discord - miralifali.
 - 😄 Pronouns: He / Him
 - ⚡ Fun fact: ###
 
