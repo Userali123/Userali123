@@ -4,7 +4,6 @@
 - 💞️ I’m looking to collaborate on ###
 - 📫 How to reach me email - techtitanspvtltd@gmail.com or discord - miralifali.
 - 😄 Pronouns: He / Him
-- ⚡ Fun fact: ###
 
 <!---
 Userali123/Userali123 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
